@@ -1,1 +1,1 @@
-![Mushroom](https://github.com/user-attachments/assets/0246af1e-0791-4bca-8679-e0556ffa4c44)
+![Mushroom](https://github.com/user-attachments/assets/d984e65f-ccd6-45e3-a2cd-8bce08cfe266)
